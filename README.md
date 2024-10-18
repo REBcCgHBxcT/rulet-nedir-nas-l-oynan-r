@@ -1,0 +1,1 @@
+# rulet-nedir-nas-l-oynan-r
